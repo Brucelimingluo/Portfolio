@@ -4,4 +4,4 @@ Please contact with me if you want to know more about me!
 
 My Email Address: limingluo.bruce@gmail.com
 
-Hope you enjoy it! 
+Thank you! Hope you enjoy it! 
